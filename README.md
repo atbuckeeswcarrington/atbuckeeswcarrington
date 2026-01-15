@@ -1,1 +1,1 @@
-![Belfort   Lupin](https://github.com/user-attachments/assets/791dbc2e-1520-4a0d-a882-262f0d1f9b9e)
+<img width="342" height="345" alt="image" src="https://github.com/user-attachments/assets/b096a3e9-ba24-4557-9606-c19025ff57a2" />
