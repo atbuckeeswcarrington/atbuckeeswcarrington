@@ -5,3 +5,4 @@ Hello, im carrington or noah, but im mostly known as wens / sam. This is my alt 
  I'm a huge fan of belfort and lupin -- aswell as other fandoms like sam & colby, 2000 disney show, and jake & johnnie + tara.
 
 ⤷ .ᐟ.ᐟ.ᐟ you will mostly see me with this github if I have a certain 2 ponies on, other than that it is not likely I will use this github for other ponies. (pos. update in the future?)
+<img width="126" height="43" alt="image" src="https://github.com/user-attachments/assets/a9cf3f81-1599-4edf-91bd-dd331b4a5078" /> pew !
