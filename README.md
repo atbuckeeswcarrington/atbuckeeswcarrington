@@ -4,7 +4,7 @@ Hello, im carrington or noah, but im mostly known as wens / el / sam. This is my
 
  I'm a huge fan of belfort and lupin -- aswell as other fandoms like sam & colby, 2000 disney shows , reg. disney , and jake & johnnie + tara. (etc ofc)
 
-⤷ .ᐟ.ᐟ.ᐟ you will mostly see me with this github if I have a certain 2 ponies on, other than that it is not likely I will use this github for other ponies. (pos. update in the future?)
+⤷ .ᐟ.ᐟ.ᐟ you will mostly see me with this github if I have a certain 3 ponies on, other than that it is not likely I will use this github for other ponies. (pos. update in the future?)
 
 c+h is always accepted unless my user says dni. Also I might be getting supporter so yay I can sleep on ponytown like an idiot!!! ^_<ㅤ 
 
