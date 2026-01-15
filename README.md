@@ -2,6 +2,6 @@
 
 Hello, im carrington or noah, but im mostly known as wens / sam. This is my alt account for @wednesdayaddamsss , but this is basically my other-ish identity(?).
 
- I'm a huge fan of belfort and lupin -- and other things ofcourse.
+ I'm a huge fan of belfort and lupin -- aswell as other fandoms like sam & colby, 2000 disney show, and jake & johnnie + tara.
 
 ⤷ .ᐟ.ᐟ.ᐟ you will mostly see me with this github if I have a certain 2 ponies on, other than that it is not likely I will use this github for other ponies. (pos. update in the future?)
