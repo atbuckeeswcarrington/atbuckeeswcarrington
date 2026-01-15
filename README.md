@@ -11,3 +11,4 @@ c+h is always accepted unless my user says dni. Also I might be getting supporte
 flags. -- heavily <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/01578217-439a-4ab5-878b-e44f5b1477d0" />. (aroace, meaning I dont usually fall inlove or have attraction to people.) |
 <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/273dce28-42af-450d-a680-fe129ca37482" /> / <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/e9a72740-1360-4d88-ba4b-e2b74a812157" />
 
+<img width="1199" height="390" alt="image" src="https://github.com/user-attachments/assets/d1572eed-870e-4a73-a1ac-f9953670f17f" />
