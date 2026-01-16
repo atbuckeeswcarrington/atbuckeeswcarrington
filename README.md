@@ -8,6 +8,8 @@ Hello, im carrington or noah, but im mostly known as wens / el / sam. This is my
 
 c+h is always accepted unless my user says dni. Also I might be getting supporter so yay I can sleep on ponytown like an idiot!!! ^_<ㅤ 
 
+HEAVILY related to eleven from ST. Eleven is my biggest kin aside from Wednesday Addams and Frankie Stein. El, Wednesday, and Frankie doubles please dni, it makes me uncomfortable.
+
 im heavily <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/01578217-439a-4ab5-878b-e44f5b1477d0" />. (aroace, meaning I dont usually fall inlove or have attraction to people.) 
 
 
