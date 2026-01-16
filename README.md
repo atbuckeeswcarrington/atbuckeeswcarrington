@@ -1,6 +1,6 @@
  ㅤ  ㅤ   ㅤ ㅤ <img width="723" height="662" alt="image" src="https://github.com/user-attachments/assets/b096a3e9-ba24-4557-9606-c19025ff57a2" />
  ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ⤷BYI.ᐟ.ᐟ.ᐟ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ
- ㅤ  ㅤ    ㅤ  ㅤ   ㅤ ㅤㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤHello, im carrington or noah, but im mostly known as wens / el / sam. This is my alt account for @wednesdayaddamsss , but this is basically my other-ish identity(?).
+ ㅤ  ㅤ    ㅤ  ㅤ   ㅤ ㅤㅤ ㅤ  ㅤ   ㅤ ㅤHello, im carrington or noah, but im mostly known as wens / el / sam. This is my alt account for @wednesdayaddamsss , but this is basically my other-ish identity(?).
 
  I'm a huge fan of belfort and lupin -- aswell as other fandoms like sam & colby, 2000 disney shows , reg. disney , stranger things , and jake & johnnie + tara. (etc ofc)
 
