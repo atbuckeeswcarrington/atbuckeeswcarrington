@@ -1,4 +1,5 @@
- ㅤ  ㅤ   ㅤ ㅤ <img width="723" height="662" alt="image" src="https://github.com/user-attachments/assets/b096a3e9-ba24-4557-9606-c19025ff57a2" />
+ ㅤ  ㅤ   ㅤ ㅤ<img width="723" height="662" alt="image" src="https://github.com/user-attachments/assets/2f1abf76-e758-45b5-b399-c7d46663f030" />
+
  ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ ㅤ    ⤷BYI.ᐟ.ᐟ.ᐟ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ
  ㅤ  ㅤ    ㅤ  ㅤ   ㅤ ㅤㅤ ㅤ  ㅤ   ㅤ Hello, im carrington or noah, but im mostly known as wens / el / sam. This is my alt account for @wednesdayaddamsss , but this is basically my other-ish identity(?).
 
