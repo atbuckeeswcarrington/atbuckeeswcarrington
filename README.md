@@ -2,7 +2,7 @@
 
 
 
- ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ ㅤ    ⤷BYI.ᐟ.ᐟ.ᐟ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ
+ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ ㅤ  ⤷BYI.ᐟ.ᐟ.ᐟ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ ㅤ  ㅤ   ㅤ ㅤ
  ㅤ  ㅤ    ㅤ  ㅤ   ㅤ ㅤㅤ ㅤ  ㅤ   ㅤ Hello, im carrington or noah, but im mostly known as wens / el / sam. This is my alt account for @wednesdayaddamsss , but this is basically my other-ish identity(?).
 
  I'm a huge fan of belfort and lupin, shera, monster high, and ever after high -- aswell as other fandoms like sam & colby, 2000 disney shows , reg. disney , stranger things , and jake & johnnie + tara. (etc ofc)
